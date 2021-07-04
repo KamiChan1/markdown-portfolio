@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Gabi
+2. Anime
+3. Games
